@@ -1,0 +1,19 @@
+---
+layout: default
+---
+
+<div class="container">
+	{% assign postingan = site.posts | sort: title %}
+	{% for x in postingan %}
+		<!-- <a href="{{ site.url }}/{{ x.url }}" class="black-text"> -->
+			<div class="card">
+				<div class="card-image">
+					<img src="{{ site.url }}/sampul/{{ x.title }}.jpg">
+				</div>
+				<div class="card-content">
+					<span class="card-title">{{ x.title }}</span>
+				</div>
+			</div>
+		<!-- </a> -->
+	{% endfor %}
+</div>

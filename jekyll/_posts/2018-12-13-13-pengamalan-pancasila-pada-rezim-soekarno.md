@@ -1,0 +1,30 @@
+---
+layout: post
+---
+
+BAGAIMANA Soekarno sebagai Presiden pertama Republik Indonesia menerapkan Pancasila sebagai dasar idiologi negara Republik Indonesia? Untuk mengetahui jawabannya, marilah kita ikuti penilaian Mr. Mohammad Roem yang beliau sampaikan dalam risalah pidato Dies Natalisnya pada UISU, Januari 1969. 
+
+Mr. Mohammad Roem menyatakan: 
+
+Dalam perkembangan negara kita selama 24 tahun ini,21) maka terjadilah satu tragedi besar. 
+
+Ir. Soekarno sebagai pemimpin rakyat pada saat yang bersejarah dalam usaha mencari dasar luas yang sama-sama dapat disetujui, yaitu Pancasila, kemudian sebagai Presiden terbawa oleh kekua-saan, yang manusia memang sifatnya tidak mampu memikul terlalu lama, meninggalkan kata sepakat itu. 
+
+Pengikut-pengikut Lenin, yaitu orang-orang Komunis, diterima sebagai Pancasilais, sebagai orang yang ber-Tuhan, sedang dalam filsafatnya tidak ada tempat untuk percaya kepada Tuhan. Tidak saja kaum Komunis diterima sebagai Pancasilais malah dalam gagasan Nasakom, kaum Komunis menjadi golongan mutlak, di samping golongan Agama dan Nasionalis. 
+
+Dalam 5 azimat Revolusi, Nasakom menjadi azimat nomor satu. Dalam kata pengantar dari “Naskah Persiapan Undang-undang Dasar 45” yang ditulis pada tanggal 22 April 1959, Presiden Soekarno menerangkan “bahwa Undang-undang Dasar 45 itu sungguh-sungguh suatu ciptaan Nasional, yang dipercik oleh 62 orang putra/putri Indonesia”. Ke-62 orang itu ialah anggota-anggota Badan Penye-lidik Usaha Persiapan Kemerdekaan dan terdiri dari pemimpin-pemimpin yang terkenal dari segala lapisan seluruh kepulauan Indonesia, termasuk juga pemimpin dari golongan keturunan Arab, Tionghoa dan Belanda. 
+
+Pengetahuan bahwa Pancasila itu kata sepakat dari karya 62 orang “de beste zonen van het land”, lebih menimbulkan rasa kepercayaan daripada anggapan yang di masa Orde Lama di indok-trinasikan, bahwa penggalian Pancasila hanya dikerjakan oleh satu orang saja. Dan kata sepakat itu dicapai dengan jalan yang sulit. Pertukaran pikiran berlangsung berhari-hari, kadang-kadang tegang. Tetapi senantiasa dalam suasana per-damaian, dengan penuh keikhlasan, didorong oleh kesadaran bahwa dalam saat yang bersejarah itu, mereka harus mendapatkan dasar bagi negara yang akan merdeka, yang tahan uji berabad-abad akan datang. 
+
+Kalau ada yang harus kita akui dari Ir. Soekarno sendiri ialah nama dari lima dasar itu, yaitu “Pancasila”. Tetapi kemudian pada bagian akhir Ir. Soekarno mengadakan “perasan”. 
+
+Pertama lima sila itu diperas menjadi tiga, yaitu “Kebangsaan dan Perikemanusiaan” diperas menjadi “Sosionalisme”, “Demokrasi dan Keadilan sosial” menjadi “Sosiodemokrasi”, Ketuhanan tetap Ketuhanan. Perasan lebih lanjut ialah tiga sila itu menjadi hanya satu, maka Ketuhanan yang Maha Esa pun musnah, dan satu sila itu ialah “Gotong-Royong”. 
+
+Meskipun waktu Ir. Soekarno mengucapkan : “Alangkah hebatnya negara Gotong-Royong”, dengan gaya yang semua kita dapat bayangkan dapat tepuk tangan riuh rendah, tetapi alham-dulillah “perasan-perasan” itu tidak sampai masuk di preambule UUD 45. Lebih-lebih waktu gagasan “Gotong-Royong” itu terjalin rapat sekali dengan gagasan Presiden tentang Nasakom, gagasan berakhir dengan peristiwa “Lubang Buaya”. 
+
+Tentu tidak ada orang yang menolak dasar ‘Gotong-Royong”. 
+
+Gotong-Royong adalah ciri atau sila tersendiri yang hidup dalam masyarakat Indonesia sejak berabad-abad. Tetapi saya rasa terlalu jauh untuk mengganti lima sila itu dengan Gotong-Royong. Terutama sila Ketuhanan Yang Maha Esa tidak dapat dihilangkan atau diselipkan dalam “Gotong-Royong” bagi orang-orang yang memandang agamanya dengan sungguh-sungguh. Kata sepakat bagi dasar negara yang merdeka itu terutama tercapai dalam sila Ketuhanan Yang Maha Easa, sila pertama dalam preambule UUD 45. 
+
+Kalau sila Ketuhanan Yang Maha Esa itu menjadi sila pertama memang sangat tepat , sebab tergantung dari kemampuan kita mengartikan dan mengisi sila pertama itu, sila lainnya dapat dilaksanakan dalam negara dengan sebaik-baiknya..? 
+
